@@ -1,5 +1,5 @@
 <div align ="center">
-![](https://komarev.com/ghpvc/?username=nnagito&color=white).
+![](https://komarev.com/ghpvc/?username=nnagito).
   
 <img width="720" height="765" alt="9054" src="https://github.com/user-attachments/assets/4386a670-f86e-4503-ab32-8481d7d5bf50" />
 

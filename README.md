@@ -13,6 +13,12 @@ $\color{#D8AB67}{\text{ᨳଓ 𝒮𝔞𝔪𝔲𝔢𝔩}}$ $\color{#DFC29A}{\text
 [About Me!](https://knagito.carrd.co/)‎ 
 [More Info!](https://pronouns.cc/nnagito)‎ 
 
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/30851c87-5584-4d38-8340-61406f44d724" />
+
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/f7b80b10-51cc-43f3-85a0-789af7321188" />
+
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/8eabb725-b205-484a-b901-4ff2149e137c" />
+
 <img width="732" height="113" alt="Image" src="https://github.com/user-attachments/assets/53e59c68-ae05-467f-87a5-d4655722155b" />
 
 

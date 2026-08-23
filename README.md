@@ -1,7 +1,7 @@
 <div align ="center">
   
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Betania+Patmos&size=15&duration=5555&pause=1000&color=4C7276&width=435&lines=From+the+bottom+of+my+heart+...;I+am+trully+in+love+with+the+hope+that+sleeps+inside+you.)](https://git.io/typing-svg)
-<img width="1280" height="1280" alt="Image" src="https://github.com/user-attachments/assets/437acd7b-8ea1-44e3-b38e-d904bbb27286" />
+<img width="1280" height="1280" alt="Image" src="https://github.com/user-attachments/assets/ca3c736c-994c-4b34-9f5f-fbd208b560c0" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Betania+Patmos&size=15&duration=5555&pause=1000&color=8AA09E&multiline=true&width=435&lines=I've+made+peace+with+the+fact+that+I'm+a+lowly%2C+stupid%2C;insignificant+human+who+can't+do+anything+right.)](https://git.io/typing-svg)
 

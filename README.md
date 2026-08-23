@@ -6,7 +6,7 @@
 <img width="1280" height="1280" alt="Image" src="https://github.com/user-attachments/assets/ca3c736c-994c-4b34-9f5f-fbd208b560c0" />
 
 
-$\color{#7FA096}{\text{ᨳଓ 🆂aꬺuel}}$ $\color{#D6C6B5}{\text{಄ Hᧉ}}$ $\color{#64857C}{\text{₊⊹ Tɑkeɳ}}$
+$\color{#7FA096}{\text{ᨳଓ Saꬺuel}}$ $\color{#D6C6B5}{\text{಄ Hᧉ}}$ $\color{#64857C}{\text{₊⊹ Tɑkeɳ}}$
 
 [About Me!](https://knagito.carrd.co/)‎ 
 [More Info!](https://pronouns.cc/nnagito)‎ 

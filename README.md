@@ -1,5 +1,5 @@
 <div align ="center">
-
+  
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Betania+Patmos&size=15&duration=5555&pause=1000&color=4C7276&width=435&lines=From+the+bottom+of+my+heart+...;I+am+trully+in+love+with+the+hope+that+sleeps+inside+you.)](https://git.io/typing-svg)
 
 <img width="1280" height="1280" alt="Image" src="https://github.com/user-attachments/assets/437acd7b-8ea1-44e3-b38e-d904bbb27286" />

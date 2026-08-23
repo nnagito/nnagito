@@ -7,12 +7,13 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Betania+Patmos&size=15&duration=5555&pause=1000&color=8AA09E&multiline=true&width=435&lines=I've+made+peace+with+the+fact+that+I'm+a+lowly%2C+stupid%2C;insignificant+human+who+can't+do+anything+right.)](https://git.io/typing-svg)
 
-<img width="732" height="113" alt="Image" src="https://github.com/user-attachments/assets/53e59c68-ae05-467f-87a5-d4655722155b" />
 
 $\color{#D8AB67}{\text{ᨳଓ 𝒮𝔞𝔪𝔲𝔢𝔩}}$ $\color{#DFC29A}{\text{಄ ℋ𝔢}}$ $\color{#C16442}{\text{₊⊹𝒯𝔞𝔨𝔢𝔫}}$
 
 [About Me!](https://knagito.carrd.co/)‎ 
 [More Info!](https://pronouns.cc/nnagito)‎ 
+
+<img width="732" height="113" alt="Image" src="https://github.com/user-attachments/assets/53e59c68-ae05-467f-87a5-d4655722155b" />
 
 
 </div>
